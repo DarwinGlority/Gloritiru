@@ -1,2 +1,2 @@
-# Gloritiru
+# Gloriti
 https://gloriti.ru
